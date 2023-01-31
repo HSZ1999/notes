@@ -1,0 +1,2 @@
+# notes
+blog and notes
